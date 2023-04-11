@@ -1,1 +1,1 @@
-Panacea-Soft Android Init
+4K HD wallpaper
